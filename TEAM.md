@@ -1,3 +1,1 @@
-# OPENS SPRING OF 2019
-
-  ## STAY TUNED!
+A team of highly trained tech ninjas.
